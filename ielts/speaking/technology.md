@@ -20,3 +20,7 @@ The changes technology has brought can be seen in literally every aspect of our 
 
 Technology has changed everything in our lives, especially in recent years. Cloud computing has greatly increased our efficiency and has improved coordination online. Development of rocket and communication technology is making satellite Internet a reality, allowing us to stay online wherever we are on Earth. Blockchain allows us to manage our personal assets without relying on any technology giants or centralized commercial banks.
 
+
+
+
+

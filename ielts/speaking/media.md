@@ -24,27 +24,27 @@ Customers are now feeling more negatively about harsh advertisements. So more an
 
 ## How do celebrities influence their fans in China?
 
-In China, once some very well-liked idols post something on SNS websites, their fans will go to repost it. Last week, for example ,my idol's new post, which was about charity, was reposted for more than 1 million times. I think it can bring a very huge as well as positive effect on us.
+In China, once some very well-liked idols post something on social media, their fans will repost it on their own. Last week, for example, my idol's newest post, about charity, was reposted more than 1 million times. I think it has a huge, positive effect on us.
 
 ## Should government invest in art?
 
-I don't think government should invest in art. Because we have more immediate concerts, like education, health care and economy. Creative art projects can seek financial supports from other ways, such as crowdfunding. As long as it can meet people's aesthetic needs, artistic works will surely win in the market competition.
+I don't think governments should invest in art, because we have more immediate concerns, like education, health care and the economy. Creative art projects can seek financial support in other ways, such as through crowdfunding. As long as it can meet people's aesthetic needs, art will win out over market competition.
 
 ## Why some people like to share things on the Internet?
 
-Because sharing things on the Internet enables us to find some netizens who interested in the similar stuff. For example, if we concerted about or curious about something, we can tweet it with a hashtag. And you get to find someone who is also interested in it.
+Because sharing things on the Internet enables us to find netizens who are interested in similar things. For example, if you're concerned about or curious about something, you can tweet it with a hashtag. You get to find someone interested in it.
 
 ## Has the development of Internet changed the way people communicate?
 
-Of course, in the past, people communicate purely with verbal language. But now when we are chatting online, we can use meme or emojis to express our feelings, furthermore, we can have video chat as if we were face to face, , no matter where we are.
+Of course, in the past, people communicated purely through verbal language. But now when we chat online, we can use memes or emojis to express our feelings, and we can have video chats as if we were face to face, no matter where we are.
 
 ## Do you know anyone who likes taking photos of himself/herself?
 
-Whether I'm on the beach,at a restaurant, or even at school, when I look around, chances are I  will find a few camera-friendly individuals are snapping selfies that will almost immediately be posted online.
+Whether I'm on the beach, at a restaurant, or even at school, when I look around, chances are I will find a few camera-friendly individuals snapping selfies that will almost immediately be posted online.
 
 ## What can people do with technology nowadays?
 
-The ways people spend their leisure time have been greatly transformed by technology. One thing technology allows them to do is lifecasting, with which they are able to share their life or even privacy with others. 
+The ways people spend their leisure time have been greatly transformed by technology. One thing technology allows them to do is lifecasting, where they are able to share their lives or even privacy with others. 
 
 
 
